@@ -1,7 +1,5 @@
 <div align="center"> 
 
-![](https://files.catbox.moe/rvwswn.gif)
-
 </div> <div align="center">   ‎ ‎15yo‎‎ ‎  ₎‎‎ ‎  he/him
 </div> <div align="center"> ‎ ‎ ‎  ‎  ‎ ‎ autistic‎ ‎ semi-verbal
 ⠀
